@@ -1,0 +1,2 @@
+# Proyek_Akhir_GrafKom_A_Kentang
+Kelompok Kentang
